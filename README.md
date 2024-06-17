@@ -1,0 +1,4 @@
+# Quiet Cove Quests
+
+
+ugh
